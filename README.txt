@@ -1,1 +1,0 @@
-Kostya , ny kak norm ? :)
